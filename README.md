@@ -1,0 +1,1 @@
+# tomoshibi-AIseminar-1q
